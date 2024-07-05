@@ -1,0 +1,4 @@
+[[Radiant]]
+![](https://lh7-us.googleusercontent.com/fs-ftXxS4gnL5px4jG9l_w5lb6ZSFHuxxe_62St_XsCEoVbMa47kDXCI0-1Au9h4nybvw0RY6EUA6avfo6E0B3f0s0XvOOe1I7gcGLPc4spR-bCq0uUzRMLn6jowsmZePmpgevW5jBut5eE0HkDA4kI)
+
+- Amalaak, Keeper of Light is a celestial being who is thought to be the creator or at least the most powerful radiant magic user that is known. He communicates directly with a lucky few on the material plane, which are usually ones he sees the potential to harness some of his radiant power. He will give them the gift of his power causing the recipient to gain a high affinity to radiant magic once their power awakens. Some have better results than others but all gain magical abilities.

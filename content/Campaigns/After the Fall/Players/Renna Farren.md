@@ -1,0 +1,1 @@
+[[Slayers]], [[Asher Lennox]], [[Radiant]], [[Amalaak, Keeper of Light]] 

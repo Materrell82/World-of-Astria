@@ -1,0 +1,1 @@
+[[Maganti, Dragon of Magic and Knowledge]]  [[Arcane]]
