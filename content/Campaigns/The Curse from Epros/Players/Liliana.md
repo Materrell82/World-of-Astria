@@ -1,1 +1,0 @@
-Magic Type: [[Arcane]] Location: [[Epros]], [[Grade A]] 

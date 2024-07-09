@@ -1,0 +1,1 @@
+![[Pictures/MagicSystemVisualization.png]]

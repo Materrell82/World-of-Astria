@@ -1,0 +1,1 @@
+This district is bustling with skilled craftsmen and artisans. Shops sell everything from enchanted jewelry to basic day to day supplies. 

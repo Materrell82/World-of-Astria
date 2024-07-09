@@ -1,0 +1,1 @@
+Where blacksmiths can be found making weapons, armor, and tools. The sound of hammering and the glow of forge fires fill the air.
